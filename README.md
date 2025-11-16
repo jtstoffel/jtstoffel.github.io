@@ -1,1 +1,0 @@
-# jtstoffel.github.io
